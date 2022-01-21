@@ -1,3 +1,7 @@
+
+
+![Cópia de Cover for GitHub](https://user-images.githubusercontent.com/8474709/150569707-80a1be6e-06e7-423f-aa70-485d2db871d8.gif)
+
 ### Cristiano Antonio Dewes
 
 <!--
